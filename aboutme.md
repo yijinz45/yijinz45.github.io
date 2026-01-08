@@ -1,24 +1,28 @@
 ---
 layout: page
 title: About Yijin
-subtitle: Anime Manga and Game is the secret of healthy life. 
-Gym K-POP Dance and Homemade Chinese Cuisine are the secret of healthy body. 
-Don't mix my song list!   
+subtitle: Anime, Manga, and Games are the secret to a healthy life! 🎮📚✨
 ---
 
-My name is Yijin Zhao 赵一瑾, you can call me Zoe or Aoki too.  
-I have the following experiences and qualities:
+Hey there! I'm **Yijin Zhao** (赵一瑾), but you can call me **Zoe** or **Aoki**—whichever feels right! 😊
 
-- Maximum dog in my house: 1.  Maximum cats in my house: 10.
-- I can play piano and violin. I love ski and skate. 
-- I play games very very well with good rank within China!!
-- I like trying new things.
-- I cook delicious food for years!
-- My favorite k-pop band in 2026 is girls: blackpink and boys: cortis. 
-- I enjoy being alone to do my own things, and I also love talking with fun people too.
-- I enjoy helping people and enjoy improving on old staff to make it better.
-- I want to focus on details more in my life!
- 
+Here's a little peek into my world:
 
-### Secrete I decide to make it public:
-I am quiet if you don't know me, but I am the loudest in the room if we are closer. 
+- **Pet Status:** 🐕 Maximum dogs in my house: 1. 🐈 Maximum cats in my house: 10. (Yes, you read that right—I'm basically a cat whisperer!)
+- **Hobbies & Skills:** 🎹 I can play piano and violin. 🎿 I love skiing and skating. (Basically, I'm a musical athlete!)
+- **Gaming Queen:** 🎮 I play games *very* well and have a top rank in China! (No big deal... 😎)
+- **Adventurous Spirit:** 🌟 I love trying new things—bring on the challenges!
+- **Culinary Magic:** 🍳 I've been cooking delicious food for years. (Your taste buds can thank me later.)
+- **K-Pop Vibes:** 🎤 My favorite bands in 2026: Girls—**BLACKPINK**! Boys—**Cortis**! (Let's stan together! 💖)
+- **Social Style:** 🤝 I enjoy quiet solo time to do my own thing, but I also love chatting with fun people. (It's all about balance!)
+- **Passions:** 💡 I enjoy helping others and improving on old stuff to make it better. (Why fix what's not broken? Because *better* is always possible!)
+- **Goal:** 🔍 I want to focus more on details in my life. (The little things matter!)
+
+---
+
+### 🚨 Secret Confession (Now Public!):
+I might seem quiet if you don't know me, but once we're closer... **I'm the loudest in the room!** 😂 Let's make some noise together!
+
+---
+
+**Let's connect!** Whether you're into anime, games, or just want to chat—I'm all ears! 🎧✨
